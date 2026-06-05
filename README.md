@@ -1,0 +1,1 @@
+# Simplificando-Tarefas-e-Ganhando-Foco-com-IA-
